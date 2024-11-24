@@ -8,6 +8,8 @@ These books were fun to write, and I hope they're fun to read. I don't really ha
 
 This website is my free resource for readers. Enjoy!
 
+Buy me a coffee: https://ko-fi.com/samsarsondavis
+
 ## About Sam
 Sam grew up in New York, surrounded by library books and a loving family. When not at work, Sam enjoys writing, playing soccer, singing, playing video games, cooking, and playing with a horde of animals. Sam believes in building up the next generation, and tries to cultivate a sense of wonder and joy in the natural world. 
 

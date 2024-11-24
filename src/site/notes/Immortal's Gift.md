@@ -6,6 +6,9 @@
   
 This is the first book in the "Immortals" Series written by Sam Sarson. This book was written in nine days, at age 18, as part of a writing challenge vacation. Sam is a scientist by day, and an everything else at night. Sam hopes you'll be interested in some of their other upcoming titles, including the second title in the Immortals Series, Immortal Burden.
 
+On Amazon: [Get your copy](https://www.amazon.com/Immortals-Gift-Book-1-ebook/dp/B00A9X98B0)
+Buy me a coffee: https://ko-fi.com/samsarsondavis
+
 ------
 ## Chapters
 
