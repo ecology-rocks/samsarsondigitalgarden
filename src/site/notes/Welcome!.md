@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/welcome/","tags":["gardenEntry"]}
 ---
 
-Some of us dream about writing fantasy books as a kid. Some of us muster up the courage to put pen to paper.
+<img src="https://nonbeenary.com/sam-sarson-davis.jpg" style="float: left; max-width: 200px; padding: 15px;">Some of us dream about writing fantasy books as a kid. Some of us muster up the courage to put pen to paper.
 
 These books were fun to write, and I hope they're fun to read. I don't really have interest in becoming a best-selling author - I'd rather folks just be able to read and connect with what I've written. 
 
