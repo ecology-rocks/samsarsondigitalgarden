@@ -25,7 +25,7 @@ I can't tell you where to start! I'm not a mind reader!
  - The Fellowship (Unfinished)
  - [[The Skateboarder's Shadow\|The Skateboarder's Shadow]]
  - [[Immortal's Gift\|Immortal's Gift]]
- - Immortal Burden
+ - [[Immortal Burden\|Immortal Burden]]
  - Immortal Rescue (Unfinished)
  - Sedona's Secret
  - Guardians of Kir'Nu
@@ -46,7 +46,7 @@ I can't tell you where to start! I'm not a mind reader!
 
 **Urban Fantasy**
  - [[Immortal's Gift\|Immortal's Gift]]
- - Immortal Burden
+ - [[Immortal Burden\|Immortal Burden]]
  - Immortal Rescue (Unfinished)
  - Guardians of Kir'Nu
  - Guardians of Brookfield (Unfinished)
