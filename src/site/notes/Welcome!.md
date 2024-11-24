@@ -15,14 +15,45 @@ Sam grew up in New York, surrounded by library books and a loving family. When n
 
 In  professional life, Sam is a first-generation college graduate scientist. Sam also dabbles in communications and web design. 
 
-Sam is based in the midwest, and on weekends, you'll find Sam enjoying long-distance sports, art, writing, gaming, tinkering, and hanging out with dogs.
+Sam is based in the Midwest, and on weekends, you'll find Sam enjoying long-distance sports, art, writing, gaming, tinkering, and hanging out with dogs.
 
 ## Where To Start
 I can't tell you where to start! I'm not a mind reader! 
 
+### Chronological
 ... if you want to see if I've gotten better at writing throughout the years, here are my projects in chronological order.
+ - The Fellowship (Unfinished)
  - [[The Skateboarder's Shadow\|The Skateboarder's Shadow]]
  - [[Immortal's Gift\|Immortal's Gift]]
  - Immortal Burden
+ - Immortal Rescue (Unfinished)
+ - Sedona's Secret
+ - Guardians of Kir'Nu
+ - Guardians of Brookfield (Unfinished)
+ - Stan, Dragonslayer
+ - Space Pirate's Kinky Emporium
+ - The First Stone
 
+### Vibes
 ... if you want to read by vibes, here are my projects by vibes and moods.
+
+**Young Adult**
+- The Fellowship (Unfinished)
+
+**True Crime**
+ - [[The Skateboarder's Shadow\|The Skateboarder's Shadow]]
+ - The First Stone
+
+**Urban Fantasy**
+ - [[Immortal's Gift\|Immortal's Gift]]
+ - Immortal Burden
+ - Immortal Rescue (Unfinished)
+ - Guardians of Kir'Nu
+ - Guardians of Brookfield (Unfinished)
+ - Sedona's Secret
+
+**Traditional Fantasy**
+ - Stan, Dragonslayer
+
+**In Space**
+- Space Pirate's Kinky Emporium
