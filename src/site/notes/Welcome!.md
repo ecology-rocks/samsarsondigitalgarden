@@ -21,6 +21,8 @@ Sam is based in the midwest, and on weekends, you'll find Sam enjoying long-dist
 I can't tell you where to start! I'm not a mind reader! 
 
 ... if you want to see if I've gotten better at writing throughout the years, here are my projects in chronological order.
+ - The Skateboarder's Shadow
  - [[Immortal's Gift\|Immortal's Gift]]
+ - Immortal Burden
 
 ... if you want to read by vibes, here are my projects by vibes and moods.
