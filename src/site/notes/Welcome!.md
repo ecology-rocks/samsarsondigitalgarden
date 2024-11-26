@@ -32,7 +32,7 @@ I can't tell you where to start! I'm not a mind reader!
  - Guardians of Brookfield (Unfinished)
  - Stan, Dragonslayer
  - Space Pirate's Kinky Emporium
- - The First Stone
+ - [[The First Stone\|The First Stone]]
 
 ### Vibes
 ... if you want to read by vibes, here are my projects by vibes and moods.
@@ -42,7 +42,7 @@ I can't tell you where to start! I'm not a mind reader!
 
 **True Crime**
  - [[The Skateboarder's Shadow\|The Skateboarder's Shadow]]
- - The First Stone
+ - [[The First Stone\|The First Stone]]
 
 **Urban Fantasy**
  - [[Immortal's Gift\|Immortal's Gift]]
