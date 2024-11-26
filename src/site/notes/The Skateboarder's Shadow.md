@@ -12,6 +12,7 @@ Julie is a teenage skategirl with a lot to lose. When she and her friends are ch
 On Amazon: [Get your copy](https://amzn.to/3OoBZRL)
 Buy me a coffee: https://ko-fi.com/samsarsondavis
 
+---
 ## Chapters
 
 1. [[The Skateboarders Shadow/Chapters/Author's Note\|Author's Note]]

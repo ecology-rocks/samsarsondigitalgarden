@@ -48,7 +48,7 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Immortal's Gift\|Immortal's Gift]]
  - [[Immortal Burden\|Immortal Burden]]
  - Immortal Rescue (Unfinished)
- - Guardians of Kir'Nu
+ - [[Guardians of Kir'Nu\|Guardians of Kir'Nu]]
  - Guardians of Brookfield (Unfinished)
  - Sedona's Secret
 
