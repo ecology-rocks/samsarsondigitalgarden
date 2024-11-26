@@ -28,7 +28,7 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Immortal Burden\|Immortal Burden]]
  - Immortal Rescue (Unfinished)
  - Sedona's Secret
- - Guardians of Kir'Nu
+ - [[Guardians of Kir'Nu\|Guardians of Kir'Nu]]
  - Guardians of Brookfield (Unfinished)
  - Stan, Dragonslayer
  - Space Pirate's Kinky Emporium
