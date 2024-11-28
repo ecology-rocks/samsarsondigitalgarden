@@ -37,4 +37,4 @@ Buy me a coffee: https://ko-fi.com/samsarsondavis
 20. [[The Skateboarders Shadow/Chapters/Unlike Any Other\|Unlike Any Other]]
 21. [[The Skateboarders Shadow/Chapters/Zeroing In\|Zeroing In]]
 22. [[The Skateboarders Shadow/Chapters/Fury\|Fury]]
-23. [[The Skateboarders Shadow/Chapters/Epilogue\|Epilogue]]
+23. [[Sedona's Secret/Chapters/Epilogue\|Sedona's Secret/Chapters/Epilogue]]

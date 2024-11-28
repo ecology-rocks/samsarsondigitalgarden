@@ -27,7 +27,7 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Immortal's Gift\|Immortal's Gift]]
  - [[Immortal Burden\|Immortal Burden]]
  - Immortal Rescue (Unfinished)
- - Sedona's Secret
+ - [[Sedona's Secret\|Sedona's Secret]]
  - [[Guardians of Kir'Nu\|Guardians of Kir'Nu]]
  - Guardians of Brookfield (Unfinished)
  - Stan, Dragonslayer
@@ -50,7 +50,7 @@ I can't tell you where to start! I'm not a mind reader!
  - Immortal Rescue (Unfinished)
  - [[Guardians of Kir'Nu\|Guardians of Kir'Nu]]
  - Guardians of Brookfield (Unfinished)
- - Sedona's Secret
+ - [[Sedona's Secret\|Sedona's Secret]]
 
 **Traditional Fantasy**
  - Stan, Dragonslayer

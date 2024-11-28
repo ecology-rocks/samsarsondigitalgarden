@@ -76,5 +76,5 @@ She melted into me with an animal sob and I watched with dead eyes as my three t
 
   ---
 Previous Chapter: [[The Skateboarders Shadow/Chapters/Zeroing In\|Zeroing In]]
-Next Chapter: [[The Skateboarders Shadow/Chapters/Epilogue\|Epilogue]]
+Next Chapter: [[The Skateboarders Shadow/Chapters/Epilogue\|The Skateboarders Shadow/Chapters/Epilogue]]
 Home: [[The Skateboarder's Shadow\|Go To Title Page]]
