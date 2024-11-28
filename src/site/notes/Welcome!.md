@@ -31,7 +31,7 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Guardians of Kir'Nu\|Guardians of Kir'Nu]]
  - Guardians of Brookfield (Unfinished)
  - [[Stan, Dragonslayer\|Stan, Dragonslayer]]
- - Space Pirate's Kinky Emporium
+ - [[Space Pirate's Kinky Emporium\|Space Pirate's Kinky Emporium]] (Editing)
  - [[The First Stone\|The First Stone]]
 
 ### Vibes
@@ -56,4 +56,4 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Stan, Dragonslayer\|Stan, Dragonslayer]]
 
 **In Space**
-- Space Pirate's Kinky Emporium
+- [[Space Pirate's Kinky Emporium\|Space Pirate's Kinky Emporium]] (Editing)
