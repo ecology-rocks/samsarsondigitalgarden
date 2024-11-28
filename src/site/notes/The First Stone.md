@@ -15,8 +15,8 @@ Buy me a coffee: https://ko-fi.com/samsarsondavis
 ----
 
 ## Chapters
-- [[Stan, Dragonslayer/Chapters/Chapter One\|Chapter One]]
-- [[Stan, Dragonslayer/Chapters/Chapter Two\|Chapter Two]]
-- [[Stan, Dragonslayer/Chapters/Chapter Three\|Chapter Three]]
-- [[Stan, Dragonslayer/Chapters/Chapter Four\|Chapter Four]]
-- [[Stan, Dragonslayer/Chapters/Chapter Five\|Chapter Five]]
+- [[Stan, Dragonslayer/Chapters/Once Upon A Time\|Once Upon A Time]]
+- [[Stan, Dragonslayer/Chapters/A Father's Judgement\|A Father's Judgement]]
+- [[Stan, Dragonslayer/Chapters/Dearly Departed\|Dearly Departed]]
+- [[Stan, Dragonslayer/Chapters/The Book of Secret Obsessions\|The Book of Secret Obsessions]]
+- [[Stan, Dragonslayer/Chapters/The End of an Era\|The End of an Era]]
