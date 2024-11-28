@@ -30,7 +30,7 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Sedona's Secret\|Sedona's Secret]]
  - [[Guardians of Kir'Nu\|Guardians of Kir'Nu]]
  - Guardians of Brookfield (Unfinished)
- - Stan, Dragonslayer
+ - [[Stan, Dragonslayer\|Stan, Dragonslayer]]
  - Space Pirate's Kinky Emporium
  - [[The First Stone\|The First Stone]]
 
@@ -53,7 +53,7 @@ I can't tell you where to start! I'm not a mind reader!
  - [[Sedona's Secret\|Sedona's Secret]]
 
 **Traditional Fantasy**
- - Stan, Dragonslayer
+ - [[Stan, Dragonslayer\|Stan, Dragonslayer]]
 
 **In Space**
 - Space Pirate's Kinky Emporium

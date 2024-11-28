@@ -15,8 +15,8 @@ Buy me a coffee: https://ko-fi.com/samsarsondavis
 ----
 
 ## Chapters
-- [[The First Stone/Chapters/Chapter One\|Chapter One]]
-- [[The First Stone/Chapters/Chapter Two\|Chapter Two]]
-- [[The First Stone/Chapters/Chapter Three\|Chapter Three]]
-- [[The First Stone/Chapters/Chapter Four\|Chapter Four]]
-- [[The First Stone/Chapters/Chapter Five\|Chapter Five]]
+- [[Stan, Dragonslayer/Chapters/Chapter One\|Chapter One]]
+- [[Stan, Dragonslayer/Chapters/Chapter Two\|Chapter Two]]
+- [[Stan, Dragonslayer/Chapters/Chapter Three\|Chapter Three]]
+- [[Stan, Dragonslayer/Chapters/Chapter Four\|Chapter Four]]
+- [[Stan, Dragonslayer/Chapters/Chapter Five\|Chapter Five]]
