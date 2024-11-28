@@ -66,6 +66,6 @@ Ari met this statement with silence, and Arkonel realized the mistake he made. 
 
   “Gods damn it all.  Good _night_, Ari.  I will see you tomorrow.”  He reached up to hold her head steady, turned it to the side, and kissed her cheek, then spun on his heel and walked off.
   ---
-  Previous Chapter: [[Immortals Gift/Chapters/Unexpected Company\|Unexpected Company]]
+  Previous Chapter: [[Immortals Gift/Chapters/Unexpected Company\|Immortals Gift/Chapters/Unexpected Company]]
   Next Chapter: [[Immortals Gift/Chapters/Reports\|Reports]]
   Home: [[Immortal's Gift\|Go To Title Page]]

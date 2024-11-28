@@ -16,7 +16,7 @@ Buy me a coffee: https://ko-fi.com/samsarsondavis
 2. [[Immortals Gift/Chapters/Morning’s Ritual\|Morning’s Ritual]]
 3. [[Immortals Gift/Chapters/Introductions\|Introductions]]
 4. [[Immortals Gift/Chapters/Easy Laughter\|Easy Laughter]]
-5. [[Immortals Gift/Chapters/Unexpected Company\|Unexpected Company]]
+5. [[Immortals Gift/Chapters/Unexpected Company\|Immortals Gift/Chapters/Unexpected Company]]
 6. [[Immortals Gift/Chapters/A Long Night\|A Long Night]]
 7. [[Immortals Gift/Chapters/Reports\|Reports]]
 8. [[Immortals Gift/Chapters/Another Morning\|Another Morning]]

@@ -87,5 +87,5 @@ Arkonel hovered above the frantic daughter and her amused mother with interest.�
   “Sure.”  Ari agreed.  She rose, setting her plate down on the coffee table her feet had been resting on and walked around it to the DVD collection.  They had recently bought most of the Disney classics on DVD.  Apparently, they made for good writing inspiration.
   ---
 Previous Chapter: [[Immortals Gift/Chapters/Introductions\|Introductions]]
-Next Chapter: [[Immortals Gift/Chapters/Unexpected Company\|Unexpected Company]]
+Next Chapter: [[Immortals Gift/Chapters/Unexpected Company\|Immortals Gift/Chapters/Unexpected Company]]
 Home: [[Immortal's Gift\|Go To Title Page]]

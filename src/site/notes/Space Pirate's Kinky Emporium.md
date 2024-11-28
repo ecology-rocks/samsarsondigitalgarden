@@ -13,6 +13,9 @@ Join me on this ridiculous quest to create a queer space adventure that affirms 
 
 Buy me a coffee: https://ko-fi.com/samsarsondavis
 
+> [!warning]
+> If it wasn't clear, this is an adult-themed book. You must be over the age of 18 to read this book. While not erotica, the entire book is about a sex toy shop. Conservatives would 100000% ban this book. Proceed with caution.
+
 ---
 ## Chapters
 
