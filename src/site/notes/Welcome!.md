@@ -13,7 +13,7 @@ Buy me a coffee: https://ko-fi.com/samsarsondavis
 ## About Sam
 Sam grew up in New York, surrounded by library books and a loving family. When not at work, Sam enjoys writing, playing soccer, singing, playing video games, cooking, and playing with a horde of animals. Sam believes in building up the next generation, and tries to cultivate a sense of wonder and joy in the natural world. 
 
-In  professional life, Sam is a first-generation college graduate scientist. Sam also dabbles in communications and web design. 
+In  professional life, Sam is a first-generation college graduate and scientist. Sam also dabbles in communications and web design. 
 
 Sam is based in the Midwest, and on weekends, you'll find Sam enjoying long-distance sports, art, writing, gaming, tinkering, and hanging out with dogs.
 
